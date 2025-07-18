@@ -1,1 +1,1 @@
-# VanisherStudios.github.io
+google.com, pub-5915125777179540, DIRECT, f08c47fec0942fa0
